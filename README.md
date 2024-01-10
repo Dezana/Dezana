@@ -1,5 +1,5 @@
 - Hi, I’m @Dezana
-- 👀 I’m interested in several fandoms, most notably Kingdom Hearts
+- 👀 I’m interested in several fandoms
 - 🌱 I’m currently learning coding basics in Java and Python
 - 📫 How to reach me - don't.
 - 😄 Pronouns: she/her
